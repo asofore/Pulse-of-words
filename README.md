@@ -19,3 +19,8 @@
 
 
 <img width="1080" height="2400" alt="1000191958" src="https://github.com/user-attachments/assets/d389aec2-e719-48ed-b54b-5f8c70ea92e7" />
+
+
+telegram https://t.me/vp_mv
+
+
